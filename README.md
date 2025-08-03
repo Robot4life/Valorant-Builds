@@ -1,4 +1,8 @@
-# Valorant-Builds
+# Valorant Builds
 
-it's not a build but.... it's something if someone does have builds hit me up at "_robot4life_" on discord
-https://gofile.io/d/wTjIYS
+*This isn't exactly a build, but it's something!*  
+
+If you have any Valorant builds to share, please reach out to me on Discord: **_robot4life_**
+
+You can also check out the files here:  
+[Download Link](https://gofile.io/d/wTjIYS)
